@@ -1,1 +1,1 @@
-uwu
+pálinkát mert azt szeretem
